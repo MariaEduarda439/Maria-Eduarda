@@ -13,4 +13,4 @@ Meu nome é Maria Eduarda
 * 📞(12)982974097
 
 ![.]
-(https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExOHpyMzJxY3hxNXlmYjczdjVyczZsOTRzbnNidzN4MGU3dXBwbmttMyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/11e56tPCqD9kjK/giphy.gif)
+(https://tenor.com/bVKoM.gif)
